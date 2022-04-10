@@ -1,5 +1,5 @@
- -hell-o. im bojnaczelove from youtube,
-i guess you dont know me. 
+ -hell o. im bojnaczelove(cringe name)
+ from youtube,i guess you dont know me. 
 Btw you can call me bojna :D
 -i love playing games,reading,drawing 
 and watching anime :)
